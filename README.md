@@ -12,7 +12,7 @@
 <p align="center">⸺‎ ‎ ‎ theyhim ‎ ‎ ‎ ‎﹒　⚣　08.06 　.ᐟ⠀⠀adult18　　　✕　　 delutism<br>don't be weird to me thx　,　no　under16　hh/hb　madcom</p>
 </div>
 <p align="center"> 
-  <a href="https://hellspawn.atabook.org/">sign</a>　　,‎　　<a href="https://spawn.fandom.com/wiki/Spawn">me</a>　　,‎　　<a href="https://rentry.co/universalcollapse">co</a>　　★‎　　───　　<a href="https://arab.org/click-to-help/palestine/">daily click</a>
+  <a href="https://hellspawn.atabook.org/">sign</a>　　,‎　　<a href="https://spawn.fandom.com/wiki/Spawn">me</a>　　,‎　　<a href="https://rentry.co/toxicwisdom">co</a>　　★‎　　───　　<a href="https://arab.org/click-to-help/palestine/">daily click</a>
 </p>
 <div align="center">
   <img height="20" src="https://64.media.tumblr.com/e127a1a6e700a97d11ea42090dfaf9d0/254dec1ce103e62a-39/s250x400/51ed18b643e5565a4e0bc3f1833bd6dc595ec2ba.gifv"/> <img height="20" src="https://files.catbox.moe/lcsr8v.gif"/>
