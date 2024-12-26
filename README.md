@@ -9,7 +9,7 @@
 <br clear="both">
 <div align="center">
   <img height="50" src="https://files.catbox.moe/8x50rm.png"  />
-<p align="center">⸺‎ ‎ ‎ theyhim ‎ ‎ ‎ ‎﹒　⚣　08.06 　.ᐟ⠀⠀adult18　　　✕　　 delutism<br>don't be weird to me thx　,　no　under16　hh/hb　madcom</p>
+<p align="center">Imp   They / Him　　﹒　18y <br>no　under16　hh/hb　madcom　<br>please don't rp with me thx 👍</p>
 </div>
 <p align="center"> 
   <a href="https://hellspawn.atabook.org/">sign</a>　　,‎　　<a href="https://warframe.fandom.com/wiki/Tyl_Regor">me</a>　　,‎　　<a href="https://rentry.co/sevagothprime">co</a>　　★‎　　───　　<a href="https://arab.org/click-to-help/palestine/">daily click</a>
