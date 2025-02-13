@@ -3,14 +3,10 @@
    <img height="150" src="https://www-static.warframe.com/uploads/d029937e5890727ea8d17f0956223005.jpg"  />
 <br clear="both">
 <h1 align="center">Holy Diver ⠀‎‎ ‎ ٭ ‎ ‎ ‎ Dio</h1>
-<br clear="both">
-<div align="center">
-<p align="center"> 
-      <img height="150" src="https://media1.tenor.com/m/-wx7-ivu9KAAAAAd/harrow-warframe.gif"  /><br>
-<p align="center">no　under16　hh/hb　madcom　<br>&&　please don't rp with me thx</p>
+<p align="center">﹒　lı　no　hh/hb　madcom　under16 <br>&　please don't rp with me thanks　◞ ◟</p>
 </div>
 <p align="center"> 
-  <a href="https://hellspawn.atabook.org/">sign</a>　　,‎　　<a href="https://warframe.fandom.com/wiki/Tyl_Regor">me</a>　　,‎　　<a href="https://rentry.co/harrowprime">co</a><br>　　⠀⠀⠀ ⸺⠀⠀　　<a href="https://arab.org/click-to-help/palestine/">daily click</a>
+  𓏼 ͡ 　<a href="https://hellspawn.atabook.org/">s</a>ign　. <a href="https://rentry.co/harrowprime">c</a>o　daily <a href="https://arab.org/click-to-help/palestine/">c</a>licks　
 <br clear="both">
 
 <div align="center">
